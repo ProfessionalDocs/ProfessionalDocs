@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ProfessionalDocs
-- 👀 I’m interested in crypto and mushrooms
+- 👀 I’m interested in crypto and trading
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on projects, coding, and where I can fit in :)
 - 📫 How to reach me info@professionaldocuments.life
